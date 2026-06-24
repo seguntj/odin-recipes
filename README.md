@@ -1,1 +1,2 @@
-# Odin-recipes
+https://souldeliciouz.com/how-to-make-ojojowater-yam-balls-yoruba-dish/# Odin-recipes 
+https://en.wikipedia.org/wiki/Ikokore#:~:text=Ikokore%20or%20Ifokore%20is%20a,like%20peppers%2C%20onions%2C%20and%20spices.
